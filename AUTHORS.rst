@@ -1,7 +1,7 @@
 Authors
 -------
 
-* Eric (New contributor)
-* Anthony 
+* Jan 007 Bond
+* Miss Top Esto
 
 
